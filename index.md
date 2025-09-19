@@ -9,7 +9,7 @@
 ---
 
 ## Profile
-Greetings! I am Shahina, pursuing my second year of law at **Sastra University**.  
+Greetings! I am Shahina, pursuing my third year of law at **Sastra University**.  
 I aspire to secure a challenging and rewarding internship that utilises my legal skills and knowledge.  
 
 ---
